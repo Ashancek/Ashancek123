@@ -1,4 +1,5 @@
 # Ashancek123
+<color="aqua">
 ## Меня зовут Георгий 
 # Я увлекаюсь компьютерными играми 
 # Люблю играть в Counter-Strike: Global Offensive
@@ -10,5 +11,5 @@
 ## Имба фильм советую посмотреть 
 ## хочу гулять
 ![N|Solid](https://i.pinimg.com/originals/20/8b/b0/208bb09c6da77e6886534f28bfa9ef70.jpg)
-
-
+## хтелось бы создать новую крипто валюту CryptoGalaxy (CGXY) 
+<color="aqua">
