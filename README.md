@@ -7,6 +7,7 @@
 ![N|Solid](https://i.playground.ru/i/pix/1240978/image.jpg)
 # есть желание поиграть в Red Dead Redemption 2 и поделать там что нибудь смешное с друзьями
 ![N|Solid](https://cq.ru/storage/uploads/posts/1075339/4831939-arthur-morgan-red-dead-redemption-2-igry-6.jpg)
-# Хочу на следующий год купить себе мотоцикл
-![N|Solid](https://globaldrive.ru/upload/resize_cache/iblock/b28/1500_1500_0/c32vhhtx07bkarus8m9kir1a6498bl3m.jpeg)
-
+## Имба фильм советую посмотреть 
+![N|Solid](https://irecommend.ru/sites/default/files/imagecache/copyright1/user-images/1021444/5AvNKOusdjApbf6GaZwIeQ.jpg)
+## И что, что он 3 часа идёт 
+## Посмотришь
