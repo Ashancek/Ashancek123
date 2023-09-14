@@ -8,6 +8,7 @@
 # есть желание поиграть в Red Dead Redemption 2 и поделать там что нибудь смешное с друзьями
 ![N|Solid]()
 ## Имба фильм советую посмотреть 
-![N|Solid]()
+## хочу гулять
+![N|Solid](https://i.pinimg.com/originals/20/8b/b0/208bb09c6da77e6886534f28bfa9ef70.jpg)
 
 
