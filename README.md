@@ -11,4 +11,4 @@
 ## хочу гулять
 ![N|Solid](https://i.pinimg.com/originals/20/8b/b0/208bb09c6da77e6886534f28bfa9ef70.jpg)
 ## хтелось бы создать новую крипто валюту CryptoGalaxy (CGXY) 
-<color="aqua">
+
