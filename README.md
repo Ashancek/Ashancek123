@@ -1,5 +1,4 @@
 # Ashancek123
-<color="aqua">
 ## Меня зовут Георгий 
 # Я увлекаюсь компьютерными играми 
 # Люблю играть в Counter-Strike: Global Offensive
